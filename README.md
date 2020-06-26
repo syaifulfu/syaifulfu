@@ -1,2 +1,0 @@
-# syaifulfu
-portofolio
